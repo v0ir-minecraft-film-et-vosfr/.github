@@ -14,7 +14,8 @@ Minecraft, Le Film (𝟸𝟶𝟸𝟻) - 𝙾𝚞 𝚛𝚎𝚐𝚊𝚛𝚍𝚎�
 
 :-
 
-<p dir="auto"><a href="https://t.co/8sWnQR6kmN"><img src="https://image.tmdb.org/t/p/w300/cq9z69AyIXeL2H14bqHE5ukm3M9.jpg" alt="Minecraft, Le Film ()" width="150" height="300" /></a></p>
+<p dir="auto"><a href="https://t.co/8sWnQR6kmN"><img src="https://image.tmdb.org/t/p/w300/cq9z69AyIXeL2H14bqHE5ukm3M9.jpg" alt="Minecraft, Le Film ()" width="320" height="400" /></a></p>
+
 
 𝟺𝙺 𝚄𝙷𝙳 | 𝟷𝟶𝟾𝟶𝙿 𝙷𝙳 | 𝟽𝟸𝟶𝙿 𝙷𝙳 | 𝙼𝙺𝚅 | 𝙼𝙿𝟺 | 𝙳𝚅𝙳 | 𝙱𝚕𝚞 𝚁𝚊𝚢
 
